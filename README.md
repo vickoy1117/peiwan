@@ -1,5 +1,5 @@
 # peiwan
-线下陪玩上门服务，叫妹纸平台，结合付费短视频，小huang片，mao片，约炮，高端，外围，兼职，真假空降 联系TG：@xiaov1319
+ 联系TG：@xiaov1319
 
 ![image](https://github.com/vickoy1117/peiwan/assets/23230443/57cf6fcd-dee3-48f0-a206-6cf3ebc6ea0a)
 ![image](https://github.com/vickoy1117/peiwan/assets/23230443/561c7d35-5108-4c75-9ec3-08cd3ca2ae20)
